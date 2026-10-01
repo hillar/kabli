@@ -1,0 +1,2 @@
+Kabli (tuntud ka kui kartulikonks või kook) on Eesti traditsiooniline põllutööriist, mida kasutatakse kartulite mullast väljakaapimiseks.
+Tegemist on varre otsa kinnitatud pika, täisnurga all või konksjalt painutatud metallist harude või teraga, millega sai mugulaid mugavalt pesast kätte ilma neid vigastamata. Sõna "kabli" (omastavas kabli, osastavas kablit) tähistab murdekeeles laiemalt ka konksu või koogu kujulist tööriista.
